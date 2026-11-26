@@ -2,8 +2,7 @@
 
 **Evidence from Greek Private Firms and a Measurement-Error Experiment**
 
-MSc Thesis in Financial Technology (Fintech) · National and Kapodistrian University of Athens · 2026
-Author: Sofia Antonakou
+MSc Thesis in Financial Technology (Fintech) · National and Kapodistrian University of Athens · 2026 · Author: Sofia Antonakou
 
 ---
 
